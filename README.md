@@ -1,0 +1,1 @@
+# shiguruinft.github.io
